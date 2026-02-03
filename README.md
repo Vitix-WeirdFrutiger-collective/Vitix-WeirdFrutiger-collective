@@ -41,7 +41,7 @@ Ask 4 our fronting status, we will tell you!
 # CHANGE THE NAME OF THIS LATER
 
 ![](https://i.pinimg.com/736x/e7/35/09/e73509dbd2067c65ee4bd381e2a35d29.jpg)
-^ CREDITS TO THE PERSON THAT MADE THIS, I FOUND IT ON PINTEREST
+CREDITS TO THE PERSON THAT MADE THIS, I FOUND IT ON PINTEREST ^
 
 Okay, now that thats over with, lets talk about (category here)
 
