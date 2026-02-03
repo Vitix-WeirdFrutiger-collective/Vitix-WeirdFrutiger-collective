@@ -26,6 +26,7 @@ Please be careful with mentioning Cosmo, Sprout, Fruitcake, Medkit, Banhammer, a
 # Learn about our system!
 
 Our hosts are Itrapped, Elliot, and Hatred, and as of writing this Elliot is frontstuck and has been for almost a year now. (I WANT HIM TO STOP FRONTING NOW!!! -ReGect)
+
 ![](https://i.pinimg.com/736x/76/bb/18/76bb18d1ce2fa365ee78255e2d242003.jpg)
 
 
@@ -41,7 +42,7 @@ Ask 4 our fronting status, we will tell you!
 # CHANGE THE NAME OF THIS LATER
 
 ![](https://i.pinimg.com/736x/e7/35/09/e73509dbd2067c65ee4bd381e2a35d29.jpg)
-< CREDITS TO THE PERSON THAT MADE THIS, I FOUND IT ON PINTEREST
+< CREDITS TO Betrayed_1x1x1x1_One_Egg ON PINTEREST
 
 Okay, now that thats over with, lets talk about (category here)
 
