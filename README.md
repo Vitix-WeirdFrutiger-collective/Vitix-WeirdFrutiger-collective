@@ -19,6 +19,8 @@ IF YOU SEE ME IN PONYTOWN SAY HI!! I am usually really nice when you get to know
 
 You can cuddle with me, I dont care!! :D
 
+![](https://i.pinimg.com/736x/cc/dd/81/ccdd8111235748021a0d966387e1e22d.jpg)
+
 Please be careful with mentioning Cosmo, Sprout, Fruitcake, Medkit, Banhammer, and Medhammer near me, theres nothing against you, I just have bad memories from OTHER people when they get mentioned!! But other than that, there isnt much on my triggers list, I dont care what you say, as long as you have common sense.
 
 
