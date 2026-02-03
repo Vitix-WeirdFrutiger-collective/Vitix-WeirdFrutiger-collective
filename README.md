@@ -23,5 +23,25 @@ You can cuddle with me, I dont care!! :D
 
 Please be careful with mentioning Cosmo, Sprout, Fruitcake, Medkit, Banhammer, and Medhammer near me, theres nothing against you, I just have bad memories from OTHER people when they get mentioned!! But other than that, there isnt much on my triggers list, I dont care what you say, as long as you have common sense.
 
+# Learn about our system!
 
+Our hosts are Itrapped, Elliot, and Hatred, and as of writing this Elliot is frontstuck and has been for almost a year now. (I WANT HIM TO STOP FRONTING NOW!!! -ReGect)
 ![](https://i.pinimg.com/736x/76/bb/18/76bb18d1ce2fa365ee78255e2d242003.jpg)
+
+
+We are a somewhat small system, we have around 30 members, although barely any front for some reason.
+
+So far we have one little and one tween, if you see Gourdy or Bluudud, be careful! Especially with Gourdy, i think its.. 7? or 8? idk.
+
+NOW BE REALLY CAREFUL WHEN HATRED FRONTS. IT IS (obviously) VERY HATEFUL, AND MAY SAY HATEFUL THINGS TOWARDS YOU AND OTHERS, NEVER TAKE WHAT IT SAYS IN A GENUINE WAY, ITS MEAN TO EVERYONE.
+
+Ask 4 our fronting status, we will tell you!
+
+
+# CHANGE THE NAME OF THIS LATER
+
+![](https://i.pinimg.com/736x/e7/35/09/e73509dbd2067c65ee4bd381e2a35d29.jpg)
+^ CREDITS TO THE PERSON THAT MADE THIS, I FOUND IT ON PINTEREST
+
+Okay, now that thats over with, lets talk about (category here)
+
