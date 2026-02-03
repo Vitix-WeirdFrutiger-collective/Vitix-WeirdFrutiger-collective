@@ -24,4 +24,4 @@ You can cuddle with me, I dont care!! :D
 Please be careful with mentioning Cosmo, Sprout, Fruitcake, Medkit, Banhammer, and Medhammer near me, theres nothing against you, I just have bad memories from OTHER people when they get mentioned!! But other than that, there isnt much on my triggers list, I dont care what you say, as long as you have common sense.
 
 
-SSO MUCH WIP PLEASE AHHH
+![](https://i.pinimg.com/736x/76/bb/18/76bb18d1ce2fa365ee78255e2d242003.jpg)
