@@ -44,5 +44,7 @@ Ask 4 our fronting status, we will tell you!
 ![](https://i.pinimg.com/736x/e7/35/09/e73509dbd2067c65ee4bd381e2a35d29.jpg)
 < CREDITS TO Betrayed_1x1x1x1_One_Egg ON PINTEREST
 
+
+
 Okay, now that thats over with, lets talk about (category here)
 
