@@ -34,7 +34,7 @@ We are a somewhat small system, we have around 30 members, although barely any f
 
 So far we have one little and one tween, if you see Gourdy or Bluudud, be careful! Especially with Gourdy, i think its.. 7? or 8? idk.
 
-NOW BE REALLY CAREFUL WHEN HATRED FRONTS. IT IS (obviously) VERY HATEFUL, AND MAY SAY HATEFUL THINGS TOWARDS YOU AND OTHERS, NEVER TAKE WHAT IT SAYS IN A GENUINE WAY, ITS MEAN TO EVERYONE.
+NOW BE REALLY CAREFUL WHEN HATRED FRONTS. IT IS (obviously) VERY HATEFUL, AND MAY SAY HATEFUL THINGS TOWARDS YOU AND OTHERS, NEVER TAKE WHAT IT SAYS IN A GENUINE WAY, ITS MEAN TO EVERYONE, NOT JUST YOU.
 
 Ask 4 our fronting status, we will tell you!
 
