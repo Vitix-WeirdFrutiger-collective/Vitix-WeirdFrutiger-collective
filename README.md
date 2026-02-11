@@ -1,4 +1,6 @@
-# 𐂯𓁺𓁺𓁺𐂯
+# ' Let me take you down , cause im goin to ... Strawberry fields ! '
+![](https://i.pinimg.com/736x/d0/08/8f/d0088f6fff709060f2a95e2bfd269b3f.jpg)
+Nothing is real...
 # Get 2 know me!!
 
 
