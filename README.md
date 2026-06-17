@@ -1,6 +1,6 @@
 # ' COME RING ME NOW !!! '
 
-![]([https://cdn.discordapp.com/attachments/1308312107904929845/1516863977030684732/300px-Bell.png?ex=6a34312a&is=6a32dfaa&hm=7b7a53622afa9d59eeb652ecc3c5dccad244ad4d921f1315a6e90b7bdba10153&])
+![](https://static.wikitide.net/nullscapewiki/3/3f/Bell_New_Idle_Animated.gif)
 
 🔔🔔🔔🔔🔔🔔🔔🔔🔔🔔🔔
 # Get 2 know me!!
