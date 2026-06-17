@@ -1,4 +1,5 @@
 # ' COME RING ME NOW !!! '
+(go to my ata book i cant put it here for some reason)
 
 ![](https://static.wikitide.net/nullscapewiki/3/3f/Bell_New_Idle_Animated.gif)
 
